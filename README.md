@@ -37,7 +37,7 @@ New York, New York     ~     January 2012 – August 2013
 - Planned and facilitated the Greening Western Queens Summer Institute in partnership with Global Kids, through which 30 high school students visited green infrastructure sites across NYC to research and create original green roof designs for their schools.
 
 
-GREENING PROGRAM ASSISTANT, Phipps Community Development Corporation
+GREENING PROGRAM ASSISTANT, Phipps Community Development Corporation  
 Bronx, New York     ~     January 2011 – December 2011 
 
 - Oversaw community garden sites and expanded public programming to include cooking demos, canoe-in fundraisers, and corporate employee service days. 
@@ -75,7 +75,9 @@ Presenter: “ConSERVE NYC: Rallying Volunteers & Support 12 Months After Disast
 Volunteer College Access Advisor  
 New York Cares
 
-- Lead weekly sessions at underserved schools in Queens to help high school seniors and families navigate the financial aid process and success-fully complete FAFSA and TAP applications. (Completed 6 hours of qualifying financial training through The Opportunity Network.)
+- Lead weekly sessions at underserved schools in Queens to help high school seniors and families navigate the financial aid process and successfully complete FAFSA and TAP applications. 
+
+- Completed 6 hours of qualifying financial training through The Opportunity Network.
 
 
 Special Event Site Captain & Volunteer Instructor  
