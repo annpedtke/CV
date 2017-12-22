@@ -1,4 +1,7 @@
-# Ann Pedtke's CV
+[Download PDF Resumé](https://github.com/annpedtke/CV/raw/master/Resum%C3%A9%20-%20Ann%20Pedtke%20-%20Dec%202017.pdf)
+
+
+# Ann Pedtke 
 
 ## Education
 
@@ -11,7 +14,7 @@ Junior Year Abroad at the University of Exeter, United Kingdom (2007-2008)
 
 ## Experience
 
-MARKETING & EVENTS MANAGER, Student Conservation Association  
+**Marketing & Events Manager**, Student Conservation Association  
 New York, New York     ~     May 2016 – present
 
 - Oversee and grow a national service program engaging 6000+ volunteers annually and generating $700,000+ in corporate sponsorship revenue.
@@ -22,14 +25,17 @@ New York, New York     ~     May 2016 – present
 
 - Lead staff project teams within a matrix structure to design and deliver innovative community engagement initiatives, cause marketing campaigns, “pop-up” service opportunities, and compelling impact stories to partners.
 
+[Posts authored as SCA Marketing & Events Manager] (http://www.thesca.org/users/apedtke)
 
-NYC OUTREACH COORDINATOR, Student Conservation Association  
+
+**NYC Outreach Coordinator**, Student Conservation Association  
 New York, New York     ~     September 2013 – April 2016
 
 - Designed and piloted the successful ConSERVE NYC service initiative to mobilize community support following Hurricane Sandy, engaging over 1,100 youth volunteers in hands-on conservation service in the first year. Scaled the model over 3 years to engage 5000+ volunteers annually nationwide.
 
+[Earth Day Live Interview] (https://www.youtube.com/watch?v=aYXFzJ2JCqw)
 
-ENVIRONMENTAL EDUCATION CONSULTANT, Horticultural Society of New York  
+**Environmental Education Consultant**, Horticultural Society of New York  
 New York, New York     ~     January 2012 – August 2013
 
 - Designed and piloted 10-week “Green Teen” curriculum for school learning gardens and collaborated with NYU to develop targeted program assessments.
@@ -37,7 +43,7 @@ New York, New York     ~     January 2012 – August 2013
 - Planned and facilitated the Greening Western Queens Summer Institute in partnership with Global Kids, through which 30 high school students visited green infrastructure sites across NYC to research and create original green roof designs for their schools.
 
 
-GREENING PROGRAM ASSISTANT, Phipps Community Development Corporation  
+**Greening Program Assistant**, Phipps Community Development Corporation  
 Bronx, New York     ~     January 2011 – December 2011 
 
 - Oversaw community garden sites and expanded public programming to include cooking demos, canoe-in fundraisers, and corporate employee service days. 
@@ -45,8 +51,7 @@ Bronx, New York     ~     January 2011 – December 2011
 - Launched after-school science programming with community garden installations at 4 public housing sites in Harlem and the Bronx.
 
 
-ENVIRONMENTAL EDUCATION ASSISTANT (SCA AmeriCorps Member),  
-New York State Department of Environmental Conservation   
+**Environmental Education Assistant (SCA AmeriCorps Member)**, New York State Department of Environmental Conservation   
 Queens, New York     ~     July 2009 – December 2010
 
 - Coordinated after-school programs across 20 NYC schools and community centers. Created and piloted Energy Stewardship curriculum and facilitated professional development trainings to introduce educators to green curriculum resources. 
