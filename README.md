@@ -1,6 +1,6 @@
 / Ann Pedtke's CV
 
-//Education
+##Education
 
 New York University – Heyman Center for Philanthropy (New York, New York)
 Graduate Certificate in Nonprofit Fundraising (2015)
@@ -9,7 +9,7 @@ Kenyon College (Gambier, Ohio)
 Double B.A. in English and Classics, Summa Cum Laude (2009)
 Junior Year Abroad at the University of Exeter, United Kingdom (2007-2008)
 
-//Experience
+##Experience
 
 MARKETING & EVENTS MANAGER, Student Conservation Association
 New York, New York     ~     May 2016 – present
@@ -52,7 +52,7 @@ Queens, New York     ~     July 2009 – December 2010
 - Coordinated after-school programs across 20 NYC schools and community centers. Created and piloted Energy Stewardship curriculum and facilitated professional development trainings to introduce educators to green curriculum resources. 
 
 
-//Conference Presentations
+##Conference Presentations
 
 - 2017 Conservation Leaders of Tomorrow       
 April 20, 2017: Vassar College, Poughkeepsie, NY
@@ -70,7 +70,7 @@ Co-Presenter: “Capturing the Data That Matters Most: A Case Study of SCA’s M
 June 16-18, 2014: Atlanta, GA
 Presenter: “ConSERVE NYC: Rallying Volunteers & Support 12 Months After Disaster Strikes”
 
-//Community Involvement
+##Community Involvement
 
 Volunteer College Access Advisor
 New York Cares
