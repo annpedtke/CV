@@ -17,6 +17,8 @@ Junior Year Abroad at the University of Exeter, United Kingdom (2007-2008)
 MARKETING & EVENTS MANAGER, Student Conservation Association  
 New York, New York     ~     May 2016 – present
 
+[Blog posts authored as SCA Marketing & Events Manager](http://www.thesca.org/users/apedtke)
+
 - Oversee and grow a national service program engaging 6000+ volunteers annually and generating $700,000+ in corporate sponsorship revenue.
 
 - Plan and execute 40-50 corporate, community, and alumni engagement events annually nationwide with a focus on connecting urban youth to the outdoors, engaging up to 800 participants and 50 team leaders per event.  
@@ -25,16 +27,15 @@ New York, New York     ~     May 2016 – present
 
 - Lead staff project teams within a matrix structure to design and deliver innovative community engagement initiatives, cause marketing campaigns, “pop-up” service opportunities, and compelling impact stories to partners.
 
-[Blog posts authored as SCA Marketing & Events Manager](http://www.thesca.org/users/apedtke)
 
 
 
 NYC OUTREACH COORDINATOR, Student Conservation Association  
 New York, New York     ~     September 2013 – April 2016
 
-- Designed and piloted the successful ConSERVE NYC service initiative to mobilize community support following Hurricane Sandy, engaging over 1,100 youth volunteers in hands-on conservation service in the first year. Scaled the model over 3 years to engage 5000+ volunteers annually nationwide.
-
 [Live Interview as SCA NYC Outreach Coordinator](https://www.youtube.com/watch?v=aYXFzJ2JCqw)
+
+- Designed and piloted the successful ConSERVE NYC service initiative to mobilize community support following Hurricane Sandy, engaging over 1,100 youth volunteers in hands-on conservation service in the first year. Scaled the model over 3 years to engage 5000+ volunteers annually nationwide.
 
 
 ENVIRONMENTAL EDUCATION CONSULTANT, Horticultural Society of New York  
@@ -57,9 +58,11 @@ ENVIRONMENTAL EDUCATION ASSISTANT (SCA AmeriCorps Member),
 New York State Department of Environmental Conservation   
 Queens, New York     ~     July 2009 – December 2010
 
+[***Conservationist*** article authored as NYSDEC AmeriCorps Member](http://www.dec.ny.gov/docs/administration_pdf/0809consforweb.pdf#page=19)
+
 - Coordinated after-school programs across 20 NYC schools and community centers. Created and piloted Energy Stewardship curriculum and facilitated professional development trainings to introduce educators to green curriculum resources. 
 
-[***Conservationist*** article authored as NYSDEC AmeriCorps Member](http://www.dec.ny.gov/docs/administration_pdf/0809consforweb.pdf#page=19)
+
 
 
 
