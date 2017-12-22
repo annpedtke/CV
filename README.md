@@ -15,8 +15,8 @@ Junior Year Abroad at the University of Exeter, United Kingdom (2007-2008)
 ## Experience
 
 MARKETING & EVENTS MANAGER, Student Conservation Association  
-New York, New York     ~     May 2016 – present
-[Blog posts authored in this role](http://www.thesca.org/users/apedtke)
+New York, New York     ~     May 2016 – present  
+[Blog posts authored in this role](http://www.thesca.org/users/apedtke)  
 [Sample program report authored in this role](https://github.com/annpedtke/CV/raw/master/Pedtke_SamplePartnerReport.pdf)
 
 - Oversee and grow a national service program engaging 6000+ volunteers annually and generating $700,000+ in corporate sponsorship revenue.
@@ -29,14 +29,14 @@ New York, New York     ~     May 2016 – present
 
 
 NYC OUTREACH COORDINATOR, Student Conservation Association  
-New York, New York     ~     September 2013 – April 2016
+New York, New York     ~     September 2013 – April 2016  
 [Live Interview in this role](https://www.youtube.com/watch?v=aYXFzJ2JCqw)
 
 - Designed and piloted the successful ConSERVE NYC service initiative to mobilize community support following Hurricane Sandy, engaging over 1,100 youth volunteers in hands-on conservation service in the first year. Scaled the model over 3 years to engage 5000+ volunteers annually nationwide.
 
 
 ENVIRONMENTAL EDUCATION CONSULTANT, Horticultural Society of New York  
-New York, New York     ~     January 2012 – August 2013
+New York, New York     ~     January 2012 – August 2013  
 Sample lesson plans authored in this role: [Sprout Power](https://www.thehort.org/pdfs/04_SPROUT_POWER.pdf), [Plot Your Garden](https://www.thehort.org/pdfs/01_PLOT_GARDEN.pdf), [Consider Critters](https://www.thehort.org/pdfs/08_CONSIDER_CRITTERS.pdf)
 
 - Designed and piloted 10-week “Green Teen” curriculum for school learning gardens and collaborated with NYU to develop targeted program assessments.
@@ -54,7 +54,7 @@ Bronx, New York     ~     January 2011 – December 2011
 
 ENVIRONMENTAL EDUCATION ASSISTANT (SCA AmeriCorps Member),  
 New York State Department of Environmental Conservation   
-Queens, New York     ~     July 2009 – December 2010
+Queens, New York     ~     July 2009 – December 2010  
 [Sample article authored in this role](http://www.dec.ny.gov/docs/administration_pdf/0809consforweb.pdf#page=19)
 
 - Coordinated after-school programs across 20 NYC schools and community centers. Created and piloted Energy Stewardship curriculum and facilitated professional development trainings to introduce educators to green curriculum resources. Created print and digital content to support the Hudson Quadricentennial marketing campaign.
