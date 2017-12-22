@@ -25,7 +25,7 @@ New York, New York     ~     May 2016 – present
 
 - Lead staff project teams within a matrix structure to design and deliver innovative community engagement initiatives, cause marketing campaigns, “pop-up” service opportunities, and compelling impact stories to partners.
 
-[Posts authored as SCA Marketing & Events Manager] (http://www.thesca.org/users/apedtke)
+[Blog posts authored as SCA Marketing & Events Manager](http://www.thesca.org/users/apedtke)
 
 
 **NYC Outreach Coordinator**, Student Conservation Association  
@@ -33,7 +33,7 @@ New York, New York     ~     September 2013 – April 2016
 
 - Designed and piloted the successful ConSERVE NYC service initiative to mobilize community support following Hurricane Sandy, engaging over 1,100 youth volunteers in hands-on conservation service in the first year. Scaled the model over 3 years to engage 5000+ volunteers annually nationwide.
 
-[Earth Day Live Interview] (https://www.youtube.com/watch?v=aYXFzJ2JCqw)
+[Earth Day Live Interview as SCA NYC Outreach Coordinator](https://www.youtube.com/watch?v=aYXFzJ2JCqw)
 
 **Environmental Education Consultant**, Horticultural Society of New York  
 New York, New York     ~     January 2012 – August 2013
@@ -55,6 +55,8 @@ Bronx, New York     ~     January 2011 – December 2011
 Queens, New York     ~     July 2009 – December 2010
 
 - Coordinated after-school programs across 20 NYC schools and community centers. Created and piloted Energy Stewardship curriculum and facilitated professional development trainings to introduce educators to green curriculum resources. 
+
+[***Conservationist*** feature article authored as NYSDEC Environmental Education Assistant](http://www.dec.ny.gov/docs/administration_pdf/0809consforweb.pdf#page=19)
 
 
 ## Conference Presentations
