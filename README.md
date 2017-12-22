@@ -1,4 +1,4 @@
-[Download PDF Resumé](https://github.com/annpedtke/CV/raw/master/Resum%C3%A9%20-%20Ann%20Pedtke%20-%20Dec%202017.pdf)
+[Download PDF Resumé](https://github.com/annpedtke/CV/raw/master/Resume_AnnPedtke_Dec2017.pdf)
 
 
 # Ann Pedtke 
@@ -17,7 +17,7 @@ Junior Year Abroad at the University of Exeter, United Kingdom (2007-2008)
 MARKETING & EVENTS MANAGER, Student Conservation Association  
 New York, New York     ~     May 2016 – present  
 [Blog posts authored in this role](http://www.thesca.org/users/apedtke)  
-[Sample program report authored in this role](https://github.com/annpedtke/CV/raw/master/Pedtke_SamplePartnerReport.pdf)
+[Sample partner report authored in this role](https://github.com/annpedtke/CV/raw/master/Pedtke_SamplePartnerReport.pdf)
 
 - Oversee and grow a national service program engaging 6000+ volunteers annually and generating $700,000+ in corporate sponsorship revenue.
 
@@ -30,7 +30,7 @@ New York, New York     ~     May 2016 – present
 
 NYC OUTREACH COORDINATOR, Student Conservation Association  
 New York, New York     ~     September 2013 – April 2016  
-[Live Interview in this role](https://www.youtube.com/watch?v=aYXFzJ2JCqw)
+[Live interview in this role](https://www.youtube.com/watch?v=aYXFzJ2JCqw)
 
 - Designed and piloted the successful ConSERVE NYC service initiative to mobilize community support following Hurricane Sandy, engaging over 1,100 youth volunteers in hands-on conservation service in the first year. Scaled the model over 3 years to engage 5000+ volunteers annually nationwide.
 
@@ -65,19 +65,19 @@ Queens, New York     ~     July 2009 – December 2010
 
 ## Conference Presentations
 
-- 2017 Conservation Leaders of Tomorrow       
+- 2017 Conservation Leaders of Tomorrow Conference  
 April 20, 2017: Vassar College, Poughkeepsie, NY  
 Panelist: “Hudson Valley Conservation Successes”
 
-- 2017 City Gardens Club Annual Forum
+- 2017 City Gardens Club Annual Forum  
 January 14, 2017: New York, NY  
 Panelist: “Overcoming Our Nature Deficit”
 
-- 2016 Points of Light National Conference on Volunteering and Service
+- 2016 Points of Light National Conference on Volunteering and Service  
 June 27-29, 2016: Detroit, MI  
 Co-Presenter: “Capturing the Data That Matters Most: A Case Study of SCA’s Metrics Evolution”
 
-- 2014 Points of Light National Conference on Volunteering and Service
+- 2014 Points of Light National Conference on Volunteering and Service  
 June 16-18, 2014: Atlanta, GA  
 Presenter: “ConSERVE NYC: Rallying Volunteers & Support 12 Months After Disaster Strikes”
 
