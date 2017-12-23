@@ -21,11 +21,11 @@ New York, New York     ~     May 2016 – present
 
 - Oversee and grow a national service program engaging 6000+ volunteers annually and generating $700,000+ in corporate sponsorship revenue.
 
-- Plan and execute 40-50 corporate, community, and alumni engagement events annually nationwide with a focus on connecting urban youth to the outdoors, engaging up to 800 participants and 50 team leaders per event.  
+- Plan and execute 40-50 corporate and community engagement events annually nationwide with a focus on connecting urban youth to the outdoors, engaging up to 800 participants and 50 team leaders per event.  
 
-- Work closely with CSR teams at corporations including American Express, Southwest Airlines, and Johnson & Johnson to elevate sponsor brands while maximizing environmental and social impacts to achieve a Triple Bottom Line.
+- Work with CSR teams at corporations including American Express, Southwest Airlines, and Johnson & Johnson to elevate sponsor brands while maximizing environmental and social impacts to achieve a Triple Bottom Line.
 
-- Lead staff project teams within a matrix structure to design and deliver innovative community engagement initiatives, cause marketing campaigns, “pop-up” service opportunities, and compelling impact stories to partners.
+- Lead staff project teams within a matrix structure to design and deliver innovative community engagement initiatives, cause marketing campaigns, and compelling impact stories to partners.
 
 
 NYC OUTREACH COORDINATOR, Student Conservation Association  
