@@ -1,4 +1,4 @@
-[Download PDF Resumé](https://github.com/annpedtke/CV/raw/master/Pedtke_Resume_Dec2017.pdf)
+[Download PDF Resumé](https://github.com/annpedtke/CV/raw/master/Pedtke_Resume_2017.pdf)
 
 
 # Ann Pedtke 
@@ -16,8 +16,8 @@ Junior Year Abroad at the University of Exeter, United Kingdom (2007-2008)
 
 MARKETING & EVENTS MANAGER, Student Conservation Association  
 New York, New York     ~     May 2016 – present  
-[***Blog posts authored in this role***](http://www.thesca.org/users/apedtke)  
-[***Sample partner report authored in this role***](https://github.com/annpedtke/CV/raw/master/Associated%20Documents/Pedtke_SamplePartnerReport.pdf)
+[***Sample Blog Posts authored in this role***](http://www.thesca.org/users/apedtke)  
+[***Sample Impact Report authored in this role***](https://github.com/annpedtke/CV/raw/master/Associated%20Documents/Pedtke_SamplePartnerReport.pdf)
 
 - Oversee and grow a national service program engaging 6000+ volunteers annually and generating $700,000+ in corporate sponsorship revenue.
 
@@ -100,7 +100,7 @@ New York Cares
 Special Event Site Captain & Volunteer Instructor  
 Bike New York
 
-- Serve as a Site Captain for the annual Five Boro Bike Tour, overseeing the Queens Con-Ed Service Area that welcomes more than 30,000 cyclists through the day for bike repair, first aid, food, music, and tour info. 
+- Serve as a Site Captain for the annual Five Boro Bike Tour, overseeing the Queens Con-Ed Service Area that welcomes more than 30,000 cyclists for bike repair, first aid, food, music, and tour info. 
 
 - Lead weekend classes at Community Bike Education Centers, instructing new cyclists on basic riding skills and urban bike safety.
 
