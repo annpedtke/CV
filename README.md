@@ -1,4 +1,4 @@
-[Download PDF Resumé](https://github.com/annpedtke/CV/raw/master/Resume_AnnPedtke_Dec2017.pdf)
+[Download PDF Resumé](https://github.com/annpedtke/CV/raw/master/Pedtke_Resume_Dec2017.pdf)
 
 
 # Ann Pedtke 
@@ -25,21 +25,21 @@ New York, New York     ~     May 2016 – present
 
 - Work with CSR teams at corporations including American Express, Southwest Airlines, and Johnson & Johnson to elevate sponsor brands while maximizing environmental and social impacts to achieve a Triple Bottom Line.
 
-- Lead staff project teams within a matrix structure to design and deliver innovative community engagement initiatives, cause marketing campaigns, and compelling impact stories to partners.
+- Lead staff project teams within a matrix structure to design and deliver innovative community engagement initiatives, cause marketing campaigns, "pop-up" service opportunities, and compelling impact stories.
 
 
 NYC OUTREACH COORDINATOR, Student Conservation Association  
 New York, New York     ~     September 2013 – April 2016  
 [***Live interview in this role***](https://www.youtube.com/watch?v=aYXFzJ2JCqw#t=1m30s)
 
-- Designed and piloted the successful ConSERVE NYC service initiative to mobilize community support following Hurricane Sandy, engaging over 1,100 youth volunteers in hands-on conservation service in the first year. Scaled the model over 3 years to engage 5000+ volunteers annually nationwide.
+- Designed and piloted the successful ConSERVE NYC initiative to mobilize community support following Hurricane Sandy, engaging over 1,100 urban youth volunteers in hands-on conservation service in the first year. Scaled the model over 3 years to engage 5000+ volunteers annually nationwide.
 
 
 ENVIRONMENTAL EDUCATION CONSULTANT, Horticultural Society of New York  
 New York, New York     ~     January 2012 – August 2013  
 [***Sample lesson plan authored in this role***](https://github.com/annpedtke/CV/raw/master/Associated%20Documents/Pedtke_SampleLessonPlan_SproutPower.pdf)
 
-- Designed and piloted 10-week “Green Teen” curriculum for school learning gardens and collaborated with NYU Steinhardt to develop targeted program assessments.
+- Designed and piloted 10-week “Green Teen” curriculum for school learning gardens and collaborated with NYU Steinhardt to develop robust program assessments.
 
 - Planned and facilitated the Greening Western Queens Summer Institute in partnership with Global Kids, through which 30 high school students visited green infrastructure sites across NYC to research and create original green roof designs for their schools.
 
@@ -49,7 +49,7 @@ Bronx, New York     ~     January 2011 – December 2011
 
 - Oversaw community garden sites and expanded public programming to include cooking demos, canoe-in fundraisers, and corporate employee service days. 
 
-- Launched after-school science programming with community garden installations at 4 public housing sites in Harlem and the Bronx.
+- Launched after-school science programming with community garden installations at 4 public housing sites in the Bronx.
 
 - Secured new grants and in-kind donors to build the financial capacity of the Greening Program.
 
@@ -110,6 +110,6 @@ Kenyon College Alumni Network
 
 - Interview undergraduate applicants unable to travel in person to Kenyon’s Ohio campus and write in-depth evaluations for Admissions review.
 
-- Arrange “meet & greet” sessions with current Kenyon students and recent graduates exploring careers in environmental fields. Host students participating in the annual January Externship Program in NYC.
+- Arrange “meet & greet” sessions with current Kenyon students and recent graduates exploring careers in green fields. Host students participating in the annual January Externship Program in NYC.
 
 
