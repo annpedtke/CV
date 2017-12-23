@@ -54,7 +54,7 @@ Bronx, New York     ~     January 2011 – December 2011
 - Secured new grants and in-kind donors to build the financial capacity of the Greening Program.
 
 
-ENVIRONMENTAL EDUCATION ASSISTANT (SCA AmeriCorps Member),  
+ENVIRONMENTAL EDUCATION ASSISTANT (SCA AmeriCorps Member)  
 New York State Department of Environmental Conservation   
 Queens, New York     ~     July 2009 – December 2010  
 [***Sample article authored in this role***](http://www.dec.ny.gov/docs/administration_pdf/0809consforweb.pdf#page=19)
