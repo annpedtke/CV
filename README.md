@@ -37,9 +37,9 @@ New York, New York     ~     September 2013 – April 2016
 
 ENVIRONMENTAL EDUCATION CONSULTANT, Horticultural Society of New York  
 New York, New York     ~     January 2012 – August 2013  
-[***Sample lesson plan authored in this role:***](https://github.com/annpedtke/CV/raw/master/Associated%20Documents/Pedtke_SampleLessonPlan_SproutPower.pdf)
+[***Sample lesson plan authored in this role***](https://github.com/annpedtke/CV/raw/master/Associated%20Documents/Pedtke_SampleLessonPlan_SproutPower.pdf)
 
-- Designed and piloted 10-week “Green Teen” curriculum for school learning gardens and collaborated with NYU to develop targeted program assessments.
+- Designed and piloted 10-week “Green Teen” curriculum for school learning gardens and collaborated with NYU Steinhardt to develop targeted program assessments.
 
 - Planned and facilitated the Greening Western Queens Summer Institute in partnership with Global Kids, through which 30 high school students visited green infrastructure sites across NYC to research and create original green roof designs for their schools.
 
