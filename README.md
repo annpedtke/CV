@@ -17,7 +17,7 @@ Junior Year Abroad at the University of Exeter, United Kingdom (2007-2008)
 MARKETING & EVENTS MANAGER, Student Conservation Association  
 New York, New York     ~     May 2016 – present  
 [***Blog posts authored in this role***](http://www.thesca.org/users/apedtke)  
-[***Sample partner report authored in this role***](https://github.com/annpedtke/CV/raw/master/Pedtke_SamplePartnerReport.pdf)
+[***Sample partner report authored in this role***](https://github.com/annpedtke/CV/raw/master/Associated%20Documents/Pedtke_SamplePartnerReport.pdf)
 
 - Oversee and grow a national service program engaging 6000+ volunteers annually and generating $700,000+ in corporate sponsorship revenue.
 
