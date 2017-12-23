@@ -37,7 +37,7 @@ New York, New York     ~     September 2013 – April 2016
 
 ENVIRONMENTAL EDUCATION CONSULTANT, Horticultural Society of New York  
 New York, New York     ~     January 2012 – August 2013  
-[***Sample lesson plans authored in this role:***](https://github.com/annpedtke/CV/raw/master/Associated%20Documents/Pedtke_SampleLessonPlan_SproutPower.pdf)
+[***Sample lesson plan authored in this role:***](https://github.com/annpedtke/CV/raw/master/Associated%20Documents/Pedtke_SampleLessonPlan_SproutPower.pdf)
 
 - Designed and piloted 10-week “Green Teen” curriculum for school learning gardens and collaborated with NYU to develop targeted program assessments.
 
@@ -51,13 +51,19 @@ Bronx, New York     ~     January 2011 – December 2011
 
 - Launched after-school science programming with community garden installations at 4 public housing sites in Harlem and the Bronx.
 
+- Secured new grants and in-kind donors to build the financial capacity of the Greening Program.
+
 
 ENVIRONMENTAL EDUCATION ASSISTANT (SCA AmeriCorps Member),  
 New York State Department of Environmental Conservation   
 Queens, New York     ~     July 2009 – December 2010  
 [***Sample article authored in this role***](http://www.dec.ny.gov/docs/administration_pdf/0809consforweb.pdf#page=19)
 
-- Coordinated after-school programs across 20 NYC schools and community centers. Created and piloted Energy Stewardship curriculum and facilitated professional development trainings to introduce educators to green curriculum resources. Created print and digital content to support the Hudson Quadricentennial marketing campaign.
+- Coordinated after-school programs across 20 NYC schools and community centers. 
+
+- Created and piloted Energy Stewardship curriculum and facilitated professional development trainings to introduce educators to green curriculum resources. 
+
+- Created print and digital content to support the Hudson Quadricentennial marketing campaign.
 
 
 
