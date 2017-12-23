@@ -9,7 +9,7 @@ New York University – Heyman Center for Philanthropy (New York, New York)
 Graduate Certificate in Nonprofit Fundraising (2015)
 
 Kenyon College (Gambier, Ohio)  
-Double B.A. in English and Classics, Summa Cum Laude (2009)  
+Double B.A. in English and Classics, ***Summa Cum Laude, Phi Beta Kappa*** (2009)  
 Junior Year Abroad at the University of Exeter, United Kingdom (2007-2008)
 
 ## Experience
@@ -30,14 +30,14 @@ New York, New York     ~     May 2016 – present
 
 NYC OUTREACH COORDINATOR, Student Conservation Association  
 New York, New York     ~     September 2013 – April 2016  
-[***Live interview in this role***](https://www.youtube.com/watch?v=aYXFzJ2JCqw#t=1m30s
+[***Live interview in this role***](https://www.youtube.com/watch?v=aYXFzJ2JCqw#t=1m30s)
 
 - Designed and piloted the successful ConSERVE NYC service initiative to mobilize community support following Hurricane Sandy, engaging over 1,100 youth volunteers in hands-on conservation service in the first year. Scaled the model over 3 years to engage 5000+ volunteers annually nationwide.
 
 
 ENVIRONMENTAL EDUCATION CONSULTANT, Horticultural Society of New York  
 New York, New York     ~     January 2012 – August 2013  
-[***Sample lesson plans authored in this role:***(https://github.com/annpedtke/CV/raw/master/Associated%20Documents/Pedtke_SampleLessonPlan_SproutPower.pdf)
+[***Sample lesson plans authored in this role:***](https://github.com/annpedtke/CV/raw/master/Associated%20Documents/Pedtke_SampleLessonPlan_SproutPower.pdf)
 
 - Designed and piloted 10-week “Green Teen” curriculum for school learning gardens and collaborated with NYU to develop targeted program assessments.
 
@@ -55,7 +55,7 @@ Bronx, New York     ~     January 2011 – December 2011
 ENVIRONMENTAL EDUCATION ASSISTANT (SCA AmeriCorps Member),  
 New York State Department of Environmental Conservation   
 Queens, New York     ~     July 2009 – December 2010  
-[***Sample article authored in this role***](https://github.com/annpedtke/CV/raw/master/Associated%20Documents/Pedtke_Article_Conservationist.pdf)
+[***Sample article authored in this role***](http://www.dec.ny.gov/docs/administration_pdf/0809consforweb.pdf#page=19)
 
 - Coordinated after-school programs across 20 NYC schools and community centers. Created and piloted Energy Stewardship curriculum and facilitated professional development trainings to introduce educators to green curriculum resources. Created print and digital content to support the Hudson Quadricentennial marketing campaign.
 
