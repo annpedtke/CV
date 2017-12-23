@@ -102,7 +102,7 @@ Bike New York
 
 - Serve as a Site Captain for the annual Five Boro Bike Tour, overseeing the Queens Con-Ed Service Area that welcomes more than 30,000 cyclists for bike repair, first aid, food, music, and tour info. 
 
-- Lead weekend classes at Community Bike Education Centers, instructing new cyclists on basic riding skills and urban bike safety.
+- Lead weekend classes at Community Bike Education Centers spring-through-fall, instructing new cyclists on basic riding skills and urban bike safety.
 
 
 Alumni Admissions Volunteer & Career Mentor  
@@ -110,6 +110,6 @@ Kenyon College Alumni Network
 
 - Interview undergraduate applicants unable to travel in person to Kenyon’s Ohio campus and write in-depth evaluations for Admissions review.
 
-- Arrange “meet & greet” sessions with current Kenyon students and recent graduates exploring careers in green fields. Host students participating in the annual January Externship Program in NYC.
+- Arrange “meet & greet” sessions with current Kenyon students and recent graduates exploring careers in green fields. Host students participating in the annual January Externship Program.
 
 
